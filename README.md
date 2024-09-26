@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Rahadiyan Aristyo
 
-NIM : 
+NIM : 607062400052
 
 ## Instruksi
 
